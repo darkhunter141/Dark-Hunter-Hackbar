@@ -8,8 +8,5 @@ Modified From Anon Hackebar
 
 📥Download Link :
 
-
-
-
-#Happy_Hacking
-#Dark_Hunter_141
+<p>Dark Hunter Hackbar Download</p>
+<a href="https://github.com/darkhunter141/Dark-Hunter-Hackbar/raw/main/Dark%20Hunter%20Hackbar-com.darkhunter.hackbar-DarkXploit%201.4-14.apk" style="text-decoraction:none;">📥Click Here!!!</a>
